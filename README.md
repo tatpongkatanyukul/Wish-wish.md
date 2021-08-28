@@ -14,4 +14,14 @@
    
 
 ## Travel
-  * 
+  * Norway
+  * Turkey
+  * Russia
+  * Uzbekistan
+  * UK
+  * Arab
+  * Azerbaijan
+  * Africa
+  * India
+  * Morroco
+  * Borneo
